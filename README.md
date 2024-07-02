@@ -1,1 +1,1 @@
-# Projeto-2-TRI---Fun-es-criando-uma-miss-o-sobre-Intelig-ncia-Artificial
+# Projeto-2-TRI-Funções-criando-uma-missão-sobre-Inteligência-Artificial
